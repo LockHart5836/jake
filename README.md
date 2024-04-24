@@ -1,2 +1,5 @@
 # jake
 My Profile
+
+
+DAGDAGAN KO LANG SIR YUNG INPUTS..
